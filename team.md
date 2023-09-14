@@ -1,5 +1,5 @@
 #Sami Jurado
-I am a undergrad at Northern Arizona University; I have recently learned how to use a
+I am a undergraduate at Northern Arizona University; I have recently learned how to use a
 chain saw to chop down a tree, and have been outlining a plan to get 
 my brothers and I to go do an escape room together.
 
